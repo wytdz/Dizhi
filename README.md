@@ -1,12 +1,6 @@
 
 :bangbang::bangbang:四虎影库 地址发布:bangbang::bangbang:
 ==
-:star: :point_right: 【地址一】 ：https://www.886ku.com
-------
-:star: :point_right: 【地址二】 ：https://www.889po.com
-------
-:star: :point_right: 【地址三】 ：https://www.551ru.com
-------
 :star: :point_right: 【大陆地址发布页】 ：https://www.4hu.me
 ------
 :star: :point_right: 【海外地址】 ：https://www.4hu.tv
