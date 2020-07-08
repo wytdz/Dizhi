@@ -5,7 +5,7 @@
 ------
 :star: :point_right: 【海外地址】 ：https://www.wyt008.com
 ------
-:star: :point_right: 【备用地址】 ：https://www.a5sex.com
+:star: :point_right: 【备用地址】 ：http://www.a5sex.com
 ------
 :star: :point_right: 【邮箱联系方式】 ：wytshipin@gmail.com
 ------
