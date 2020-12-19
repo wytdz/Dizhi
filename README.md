@@ -5,7 +5,7 @@
 ------
 :star: :point_right: 【海外地址】 ：www.wyt008.com
 ------
-:star: :point_right: 【备用地址】 ：www.a5sex.com
+:star: :point_right: 【备用地址】 ：www.wyt999.xyz
 ------
 广告，友链，报错，求片联系方式
 ------
