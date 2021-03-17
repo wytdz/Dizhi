@@ -1,9 +1,9 @@
 
 :bangbang::bangbang:五月天视频 地址发布:bangbang::bangbang:
 ==
-:star: :point_right: 【大陆地址发布页】 ： wyt008.com
+:star: :point_right: 【大陆地址发布页】 ： wyt999.xyz
 ------
-:star: :point_right: 【海外地址】 ： wyt008.com
+:star: :point_right: 【海外地址】 ： wyt999.xyz
 ------
 :star: :point_right: 【备用地址一】 ： wyt999.xyz
 ------
