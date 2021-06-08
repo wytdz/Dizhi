@@ -3,8 +3,6 @@
 ==
 :star: :point_right: 【最新地址一】 ： https://wyt999.xyz
 ------
-:star: :point_right: 【最新地址二】 ： https://wyt888.xyz
-------
 :star: :point_right: 【最新地址二】 ： https://wyt777.xyz
 ------
 :star: :point_right: 【最新地址二】 ： https://wyt666.xyz
