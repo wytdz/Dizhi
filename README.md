@@ -7,6 +7,7 @@
 ------
 :star: :point_right: 【最新地址二】 ： https://wyt666.xyz
 ------
+:star: :point_right: 【海外永久访问地址】 ： https://wyt008.com
 ------
 :star: :point_right: 【发布页】 ： https://wytdz.xyz
 ------
