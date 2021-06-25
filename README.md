@@ -1,11 +1,11 @@
 
 :bangbang::bangbang:五月天视频 地址发布:bangbang::bangbang:
 ==
-:star: :point_right: 【最新地址一】 ： https://wyt999.xyz
+:star: :point_right: 【最新地址一】 ： https://wyt666.xyz
 ------
 :star: :point_right: 【最新地址二】 ： https://wyt777.xyz
 ------
-:star: :point_right: 【最新地址二】 ： https://wyt666.xyz
+:star: :point_right: 【备用地址】 ： https://wyt555.xyz
 ------
 :star: :point_right: 【海外永久访问地址】 ： https://wyt008.com
 ------
