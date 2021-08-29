@@ -3,13 +3,13 @@
 ==
 :star: :point_right: 【最新地址一】 ： https://wyt666.xyz
 ------
-:star: :point_right: 【最新地址二】 ： https://wyt777.xyz
+:star: :point_right: 【最新地址二】 ： https://wyt555.xyz
 ------
-:star: :point_right: 【备用地址】 ： https://wyt555.xyz
+:star: :point_right: 【备用地址】 ： https://wyt111.xyz
 ------
 :star: :point_right: 【海外永久访问地址】 ： https://wyt008.com
 ------
-:star: :point_right: 【发布页】 ： https://wytdz.xyz
+:star: :point_right: 【发布页1】 ： https://wytdz.xyz
 ------
 广告，友链，报错，求片联系方式
 ------
