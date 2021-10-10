@@ -15,7 +15,7 @@
 ------
 :star: :point_right: 【邮箱联系方式】 ：wytshipin@gmail.com
 ------
-:star: :point_right: 【飞机号(telegram)联系方式】:@wuyue10
+:star: :point_right: 【telegram联系方式】:@dak0622
 ------
 
 
