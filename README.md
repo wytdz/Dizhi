@@ -1,15 +1,14 @@
 
 :bangbang::bangbang:五月天视频 地址发布:bangbang::bangbang:
 ==
-:star: :point_right: 【最新地址一】 ： https://wyt111.xyz
+:star: :point_right: 【最新地址一】 ： https://www.wyt001.xyz
 ------
-:star: :point_right: 【最新地址二】 ： https://wyt222.xyz
+:star: :point_right: 【最新地址二】 ： https://www.wyt002.xyz
 ------
-:star: :point_right: 【备用地址】 ： https://wyt333.xyz
+:star: :point_right: 【备用地址】 ： https://www.wyt003.xyz
 ------
-:star: :point_right: 【海外永久访问地址】 ： https://wyt008.com
-------
-:star: :point_right: 【发布页1】 ： https://wytdz.xyz
+
+:star: :point_right: 【发布页1】 ： https://www.wytdz.xyz
 ------
 广告，友链，报错，求片联系方式
 ------
