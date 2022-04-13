@@ -13,6 +13,8 @@
 ------
 :star: :point_right: 【备用地址】 ： https://www.wyt011.xyz
 ------
+:star: :point_right: 【国外永久地址】 ： https://www.wytsp.xyz
+------
 
 :star: :point_right: 【发布页1】 ：https://wytdz.github.io/
 ------
