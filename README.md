@@ -16,7 +16,7 @@
 
 :star: :point_right: 【发布页1】 ：https://wytdz.github.io/
 ------
-广告，友链，报错，求片联系方式
+联系方式
 ------
 :star: :point_right: 【邮箱联系方式】 ：wytshipin@gmail.com
 ------
