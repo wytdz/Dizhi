@@ -1,19 +1,15 @@
 
 :bangbang::bangbang:五月天视频 地址发布:bangbang::bangbang:
 ==
-:star: :point_right: 【备用地址】 ： https://www.wyt002.xyz
+:star: :point_right: 【备用地址】 ： https://www.wyt3.xyz
 ------
-:star: :point_right: 【备用地址】 ： https://www.wyt003.xyz
+:star: :point_right: 【备用地址】 ： https://www.wyt7.xyz
 ------
-:star: :point_right: 【备用地址】 ： https://www.wyt005.xyz
+:star: :point_right: 【备用地址】 ： https://www.qingse2.top
 ------
-:star: :point_right: 【备用地址】 ： https://www.wyt009.xyz
+:star: :point_right: 【备用地址】 ： https://www.qingse3.top
 ------
-:star: :point_right: 【备用地址】 ： https://www.wyt010.xyz
-------
-:star: :point_right: 【备用地址】 ： https://www.wyt011.xyz
-------
-:star: :point_right: 【国外永久地址】 ： https://www.wytsp.xyz
+:star: :point_right: 【国外永久地址】 ：https://www.qingse69.com
 ------
 
 :star: :point_right: 【发布页1】 ：https://wytdz.github.io/
@@ -22,7 +18,7 @@
 ------
 :star: :point_right: 【邮箱联系方式】 ：wytshipin@gmail.com
 ------
-:star: :point_right: 【telegram联系方式】:@dak0622
+:star: :point_right: 【telegram联系方式】:@dak866
 ------
 
 
