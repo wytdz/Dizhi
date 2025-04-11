@@ -1,15 +1,15 @@
 
 :bangbang::bangbang:五月天视频 地址发布:bangbang::bangbang:
 ==
-:star: :point_right: 【备用地址】 ： https://www.wyt3.xyz
+:star: :point_right: 【备用地址】 ： https://www.wuyefangying.xyz
 ------
-:star: :point_right: 【备用地址】 ： https://www.wyt7.xyz
+:star: :point_right: 【备用地址】 ： https://www.wuyefangying.top
 ------
-:star: :point_right: 【备用地址】 ： https://www.qingse2.top
+:star: :point_right: 【备用地址】 ： https://www.qingse7.top
 ------
-:star: :point_right: 【备用地址】 ： https://www.qingse3.top
+:star: :point_right: 【备用地址】 ： https://www.qingse8.top
 ------
-:star: :point_right: 【国外永久地址】 ：https://www.qingse69.com
+:star: :point_right: 【国外永久地址】 ：https://www.wuyefangying.cc
 ------
 
 :star: :point_right: 【发布页1】 ：https://wytdz.github.io/
